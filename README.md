@@ -1,2 +1,1 @@
-# u-ka-birthday-
-Ye code meri dr ke liye 
+# u-ka-birthday- ke liye 
